@@ -7,7 +7,8 @@
  - hvitløkspulver
  - Salt og pepper etter smak
  - 4 store fullkorns tortillalefser
-### Alternativt
+
+*Alternativt*
  - Mais
  - Kidneybønner
  - Fersk koriander (ikke atlernativt med mindre du syns det smaker som såpe)
