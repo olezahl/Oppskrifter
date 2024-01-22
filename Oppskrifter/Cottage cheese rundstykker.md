@@ -1,7 +1,7 @@
 # Cottage cheese rundstykker
 
 ### ingredienser
-- 400g cottage cheese
+- 400g mager cottage cheese
 - 300g mel
 - 2ts salt
 - 2ts bakepulver
