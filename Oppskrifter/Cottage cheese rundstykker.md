@@ -2,7 +2,7 @@
 
 ### ingredienser
 - 400g mager cottage cheese
-- 300g mel
+- 300g mel (kan bytte ut halvparten med grovt mel)
 - 2ts salt
 - 2ts bakepulver
 
